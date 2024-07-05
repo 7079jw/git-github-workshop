@@ -1,1 +1,1 @@
-i love obama and 911
+i love obama and 911 i also hate danish

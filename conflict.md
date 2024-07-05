@@ -1,0 +1,1 @@
+i love obama and 911 i also hate danish wwadwd
